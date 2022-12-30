@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @susgus1701
+- 👀 I’m interested in music theory and composition
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on nothing rn
+- 📫 How to reach me: discord: susgus#0865
